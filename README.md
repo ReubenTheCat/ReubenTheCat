@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ReubenTheCat
 - 👀 I’m interested in ... Whatever
-- 🌱 I’m currently learning ... Nothung
+- 🌱 I’m currently learning ... Nothing
 - 💞️ I’m looking to collaborate on ... Idk
 - 📫 How to reach me ... Why Whould I Let You
 
